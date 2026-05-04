@@ -1,0 +1,1 @@
+GitHub write access test for 10K Lucky Spin.
